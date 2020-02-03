@@ -1,0 +1,1 @@
+# S-mn-r-viktigt-datorn-inte-lika
